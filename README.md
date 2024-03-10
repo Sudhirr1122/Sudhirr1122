@@ -1,4 +1,4 @@
-👋 Hi, I’m @RiaYadav
+👋 Hi, I’m Sudhir patil
 👀 I’m DAta analysis and Media analysis Enthusiast.
 💞️ I’m looking to collaborate on work related to above stated interests.
 📫 Mail me at sudhirmahadevpatil@gmail.com
